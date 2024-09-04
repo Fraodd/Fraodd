@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Fraodd
+- 👀 I’m interested in Python and I dabble in Lua and Java
+- 🌱 I’m currently learning everything when I'm bored
+- 📫 How to reach me Guns.lol/fraod
+- ⚡ Fun fact: I started learning how to code because I wanted to make a Roblox game 💀💀💀
